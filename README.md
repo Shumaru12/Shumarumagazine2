@@ -1,0 +1,1 @@
+# Shumarumagazine2
